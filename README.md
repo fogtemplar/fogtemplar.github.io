@@ -1,1 +1,0 @@
-# fogtemplar.github.io
